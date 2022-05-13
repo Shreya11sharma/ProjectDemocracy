@@ -9,3 +9,5 @@ I  am Sharma
 
 
 I am Shreya Sharma 
+
+Bhutan too is not a democracy
